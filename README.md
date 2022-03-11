@@ -1,9 +1,11 @@
-- 👋 Hi, I’m @JD0011
+- 👋 Hi, I’m [JD0011](https://t.me/albintko)
 - 👀 I’m interested in Editing...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 
+- 𝙳𝙴𝚅𝙴𝙻𝙾𝙿𝙴𝚁 ›› [𝐀𝐋𝐁𝐈𝐍](https://t.me/albintko)                                                                                                                                        
+- 𝙶𝚁𝙾𝚄𝙿 ›› [𝗙𝗶𝗹𝗶𝗺 𝗖𝗹𝘂𝗯](https://t.me/moviebus2)                                             
+- 𝙲𝙷𝙰𝙽𝙽𝙴𝙻 ›› [𝐅𝐂 𝐔𝐩𝐝𝐚𝐭𝐞𝐬](https://t.me/+AMHw_K1wvOM3MTU9)
 <!---
 JD0011/JD0011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
